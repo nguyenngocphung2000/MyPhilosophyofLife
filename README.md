@@ -1,12 +1,12 @@
 # My Philosophy Of Life
 
-*Triết lý nhân sinh của tôi*[span_0](start_span)[span_0](end_span)
+*Triết lý nhân sinh của tôi*
 
 ## LỜI MỞ ĐẦU
 
 Nhiều người vẫn thường mặc định "đắc nhân tâm" là nghệ thuật giao tiếp, là tập hợp những kỹ xảo và lời nói khéo léo để lấy lòng thiên hạ. Nhưng với tôi, sự thu phục bền vững nhất trên đời chưa bao giờ đến từ những mưu cầu bề ngoài. Trái tim con người là một vùng đất thiêng, không thể dùng sự toan tính để chiếm đoạt, mà chỉ có thể dùng sự chân thành, đạo đức và lẽ phải để cảm hóa.
 
-Dự án **MyPhilosophyOfLife - Triết lý nhân sinh của tôi**[span_1](start_span)[span_1](end_span) không phải là một cẩm nang dạy cách thao túng tâm lý hay làm hài lòng tất cả mọi người. Đây là nơi tập hợp những chiêm nghiệm bình dị nhưng mang sức nặng của sự tỉnh thức — một hành trình quay vào bên trong để tu tâm, dưỡng tính, lấy đạo lý và nhân nghĩa làm kim chỉ nam.
+Dự án **My Philosophy Of Life - Triết lý nhân sinh của tôi** không phải là một cẩm nang dạy cách thao túng tâm lý hay làm hài lòng tất cả mọi người. Đây là nơi tập hợp những chiêm nghiệm bình dị nhưng mang sức nặng của sự tỉnh thức — một hành trình quay vào bên trong để tu tâm, dưỡng tính, lấy đạo lý và nhân nghĩa làm kim chỉ nam.
 
 Xuyên suốt những trang viết này là vô số bài học ẩn sau những điều tưởng chừng nhỏ bé nhất trong cuộc sống. Đó có thể là một chiếc chén trà không quai nhắc nhở ta về sự nhẫn nại và cái đạo của sự buông bỏ, hay những câu chuyện đa góc nhìn khác về nhân luân, về cách giữ gìn cái "nghĩa" trong thế giới nhiều đổi thay, và cách nhìn thấu những được - mất vô thường. 
 
