@@ -21,6 +21,7 @@ Cuộc đời vạn biến, đạo lý bất biến. Mời bạn gác lại nh�
 
 * [Lời mở đầu](#lời-mở-đầu)
 * [Tại sao chén trà không có quai?](#tại-sao-chén-trà-không-có-quai)
+* [Vết xước](#vết-xước)
 
 ---
 
@@ -57,5 +58,21 @@ Vậy nên đừng chỉ mãi hỏi rằng "Người khác đã làm gì với t
 Chén trà không quai còn buộc người uống phải chậm lại. Không thể tiện tay xách lên như một chiếc cốc. Phải nhìn, phải chạm, phải biết nhiệt, phải chọn đúng lúc. Đó là điều người hiện đại ngày càng khó học, khi ta muốn mọi thứ đều thật nhanh — nhanh giàu, nhanh yêu, nhanh kết luận một người, nhanh buông một người. Gieo vội nhưng lại càng muốn gặt vội, nên ta thường bước qua mất cái "thời". Mà trong đạo của trời đất, việc gì cũng có thời của nó.
 
 Người trí không chỉ hỏi việc này đúng hay sai, mà còn tự vấn: "Đã đến lúc chưa?" Đó là chỗ khác nhau giữa người có lực và người biết thế. Như uống trà — không ai thắng được một chén trà nóng bằng cách cố uống nhanh hơn. Nhưng đạo học cũng không dạy con người chịu đựng mọi thứ một cách thụ động, mà dạy ta biết chờ đúng lúc, để tận hưởng trọn vẹn khi thời khắc đã đến.
+
+---
+
+## VẾT XƯỚC
+
+Đôi khi cuộc sống lấy đi của ta rất nhiều điều, không phải để trừng phạt, mà để dạy ta cách trưởng thành và mạnh mẽ hơn.
+
+Có những giai đoạn, ta cứ mãi tự hỏi tại sao mình phải chịu đựng nhiều đến vậy. Tại sao ông trời lại nỡ lấy đi những thứ mình từng nâng niu, từng cố công gìn giữ. Nhưng rồi càng đi qua nhiều biến cố, ta càng hiểu ra một điều: cuộc đời chưa bao giờ có ý định trừng phạt ai cả. Nó chỉ đang âm thầm rèn giũa ta, theo cách riêng của nó, để một ngày nào đó ta đủ vững vàng đối diện với những sóng gió lớn hơn còn đang chờ phía trước.
+
+Những vết xước mà cuộc đời để lại không hề khiến ta yếu đuối đi, như ta từng lầm tưởng. Ngược lại, chúng chính là minh chứng cho sự cố gắng của ta. Chúng âm thầm nhắc nhớ rằng ta đã từng đau đớn đến mức tưởng chừng không thể thở nổi, từng gục ngã giữa những đêm dài tưởng như vô tận, nhưng cuối cùng vẫn đủ can đảm để tự mình đứng dậy, phủi sạch bụi đường và bước tiếp về phía trước. Có những vết thương không bao giờ lành hẳn, nhưng chính chúng lại dạy ta biết trân trọng những ngày tháng bình yên hiếm hoi. Có những mất mát tưởng như đã cướp đi tất cả, nhưng lại âm thầm trao cho ta một điều quý giá hơn: sự thấu hiểu sâu sắc về chính bản thân mình.
+
+Ta học được cách buông bỏ những gì không thể giữ. Học được cách chấp nhận rằng không phải mọi cố gắng đều có kết quả như mong đợi. Học được cách sống chậm lại giữa những ngày tháng vội vã, để lắng nghe trái tim mình đang cần điều gì. Và quan trọng hơn cả, ta học được cách tha thứ cho chính bản thân, vì đã có những lúc yếu lòng, đã có những lần muốn buông xuôi tất cả.
+
+Rồi sẽ đến một ngày, ta ngoảnh nhìn lại tất cả những gì đã qua mà khẽ mỉm cười. Không phải vì những nỗi đau ấy đã biến mất hoàn toàn, mà vì ta đã học được cách sống chung với chúng, cách biến chúng thành một phần của hành trình trưởng thành. Bởi hóa ra, chính những ngày tháng tưởng chừng không thể nào vượt qua nổi ấy, lại là điều đã tạo nên một phiên bản kiên cường, sâu sắc và vững vàng hơn của ta ngày hôm nay.
+
+Và có lẽ, đó mới chính là món quà thầm lặng nhất mà cuộc đời từng trao tặng: không phải là một con đường bằng phẳng không chông gai, mà là một trái tim đủ mạnh mẽ để đi qua mọi chông gai mà vẫn giữ được sự dịu dàng vốn có của nó.
 
 ---
